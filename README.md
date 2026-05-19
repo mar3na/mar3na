@@ -10,8 +10,8 @@
 ㅤ#hi everyone!! 𝄢୨୧・┈┈・┈┈・୨୧
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ˛ 𓏲࣪ stupid russian student profile!!
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-𝆹 ꒰⌒ fand0ms ( mains, not all !! ) 𝄁 : alien stage, tadc, aib, death note, brawl stars, panty and stocking, crk, genshin impact, sailor moon, danganronpa, ddlc, fnaf, senchous, yandere sim, future diary, houmstack ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+𝆹 ꒰⌒ fand0ms ( mains, not all !! ) 𝄁 : alien stage, tadc, aib, death note, brawl stars, panty and stocking, crk, genshin impact, sailor moon, danganronpa, ddlc, fnaf, senchous, yandere sim, future diary, houmstack ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 dni : all that ends on -filia, rasist, fan of tpoh, fan of lololoshka ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <img width="101" height="57" alt="68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f64613363396331663839363066636135663539386463343763626563386664392f356661383539666633373335636336632d63342f73313030783230302f6237613531356662363237346234636562" src="https://github.com/user-attachments/assets/ab7f1397-7b67-4963-be38-1d0e6ee28827" />
