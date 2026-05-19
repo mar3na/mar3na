@@ -10,7 +10,7 @@
 ㅤ#hi everyone!! 𝄢୨୧・┈┈・┈┈・୨୧
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ˛ 𓏲࣪ stupid russian student profile!!
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 𝆹 ꒰⌒ fand0ms ( mains, not all !! ) 𝄁 : alien stage, tadc, aib, death note, brawl stars, panty and stocking, crk, genshin impact, sailor moon, danganronpa, ddlc, fnaf, senchous, yandere sim, future diary, houmstack ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 dni : all that ends on -filia, rasist, fan of tpoh, fan of lololoshka ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
@@ -30,3 +30,4 @@ dni : all that ends on -filia, rasist, fan of tpoh, fan of lololoshka ㅤㅤㅤ�
 <img width="101" height="57" alt="cookie-run-stamp (1)" src="https://github.com/user-attachments/assets/91443bfc-94b4-4a2d-9ddc-98efe9758b8b" />
 <img width="101" height="57" alt="stamp-spacehey (1)" src="https://github.com/user-attachments/assets/4c7247ef-f59e-452d-ba61-add3ccf455b7" />
 <img width="101" height="57" alt="stamp-spacehey (4)" src="https://github.com/user-attachments/assets/82dbd940-98e4-4726-bbc8-cde30b50fa0b" />
+<img width="980" height="500" alt="tumblr_6dfbf9852752051c8b188e541aa301b7_ccdd65b2_540" src="https://github.com/user-attachments/assets/cfadcffb-4a68-46e2-b47d-eee8c9fb52f5" />
