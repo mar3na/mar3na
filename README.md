@@ -1,5 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ
-<img width="101" height="57" alt="stamp-cat" src="https://github.com/user-attachments/assets/a5b52f1a-695b-48d1-a92d-10c61aad8574" />
+<img width="101" height="57" alt="spacehey-stamp" src="https://github.com/user-attachments/assets/afa383c1-80ab-426f-ae13-88f2fe967013" />ㅤㅤㅤㅤㅤ<img width="101" height="57" alt="stamp-cat" src="https://github.com/user-attachments/assets/a5b52f1a-695b-48d1-a92d-10c61aad8574" />
 <img width="101" height="57" alt="stamp-stocking" src="https://github.com/user-attachments/assets/c69bb53b-61db-405d-ad3f-a52417b92897" />
 <img width="101" height="57" alt="stamp-anime" src="https://github.com/user-attachments/assets/cc83f13f-9d0b-4f2d-8fd8-0f0c2111a161" />
 <img width="101" height="57" alt="stamp-stars" src="https://github.com/user-attachments/assets/434c9a5a-7c7e-4e70-a35c-1e55851ad541" />
@@ -30,6 +29,4 @@ dni : all that ends on -filia, rasist, fan of tpoh, fan of lololoshka ㅤㅤㅤ�
 <img width="101" height="57" alt="cookie-run-stamp (1)" src="https://github.com/user-attachments/assets/91443bfc-94b4-4a2d-9ddc-98efe9758b8b" />
 <img width="101" height="57" alt="stamp-spacehey (1)" src="https://github.com/user-attachments/assets/4c7247ef-f59e-452d-ba61-add3ccf455b7" />
 <img width="101" height="57" alt="stamp-spacehey (2)" src="https://github.com/user-attachments/assets/dccfa0b5-62df-40ff-bcf3-7a51ba8474ad" />
-<img width="101" height="57" alt="stamp-spacehey (3)" src="https://github.com/user-attachments/assets/a2621828-d1b5-4faa-b3c4-da331e9991fd" />
-<img width="101" height="57" alt="stamp-spacehey (4)" src="https://github.com/user-attachments/assets/39899518-b76b-4bb3-b103-ab354af3e210" />
-<img width="940" height="500" alt="tumblr_6dfbf9852752051c8b188e541aa301b7_ccdd65b2_540" src="https://github.com/user-attachments/assets/71f706c6-2ea5-4935-96c7-05635d039c68" />
+<img width="101" height="57" alt="stamp-spacehey (4)" src="https://github.com/user-attachments/assets/82dbd940-98e4-4726-bbc8-cde30b50fa0b" />
